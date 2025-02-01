@@ -1,7 +1,1 @@
-- 👋 Hi, I’m @chinnken
-- 👀 I’m interested in SEX BOY I LIKE SEX
-- 🌱 I’m currently learning what chink means
-- 💞️ I’m looking to collaborate on something none of your business chink 
-- 📫 How to reach me I dont know you so you can reach me __nyxus__ discord
-- 😄 Pronouns: ch/ink
-- ⚡ Fun fact: kys
+
